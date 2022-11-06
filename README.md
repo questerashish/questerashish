@@ -22,9 +22,6 @@ Email - pandeyskasish@gmail.com
 Website - www.questerashish.in
 
 
-About Me
-Working as an Officer in Armed Forces.
-Graduated BSC( Comp Sci ) and Engineering from JNU, Delhi.
 
 
 Thanks for stopping by! 😃
